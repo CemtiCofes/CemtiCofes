@@ -1,4 +1,4 @@
-😤 A very boring individual who really wants to make a 2D RPG game like Hollow Knight.
+😤 A very boring individual who really wants to make a 2D RPG game like Undertale or smth.
 
 🟡 Pronouns: He/him
 
