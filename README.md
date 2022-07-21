@@ -1,7 +1,11 @@
-🟡 Pronouns: They/them, He/him
+🟡 Pronouns: He/him
 
-🗣️ A basic Rolling Sky Editor. This place is specialized to archive some of my edited level files.
+🗣️ When there's so many things that I keep in my mind,
 
-🗿 Why are you even reading this?
+☠️ I hang around people I don't even like.
+
+😳 If they can be happy and walk with a smile.
+
+😭 Oh why, can't I?
 
 👉 https://youtube.com/c/CentiCodes
