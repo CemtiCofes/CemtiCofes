@@ -1,11 +1,9 @@
 🟡 Pronouns: He/him
 
-🗣️ When there's so many things that I keep in my mind,
-
-☠️ I hang around people I don't even like.
-
-😳 If they can be happy and walk with a smile.
-
-😭 Oh why, can't I?
+🗣️ I archive my Rolling Sky Edit projects here.
 
 👉 https://youtube.com/c/CentiCodes
+
+😳 pfp by: momo_mlbb in Instagram
+
+☠️ "Maybe I should not give up without a fight, cuz there will be a time."
